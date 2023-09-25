@@ -1,1 +1,1 @@
-x
+sevince tüm insanlar bir başka
